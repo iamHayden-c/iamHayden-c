@@ -8,4 +8,4 @@
 
 - 💬 Ask me about my interest in music and world wide traveling!
 
-- ⚡ Fun fact: I'm learning German as a second language!
+- ⚡ Fun fact: I'm learning German as a second language
